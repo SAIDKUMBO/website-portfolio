@@ -1,4 +1,4 @@
-[View the Website ](https://kumbosaid.me/) 
+[View my Website ](https://kumbosaid.me/) 
 
 Hi, I am Kumbo Said. 
 
